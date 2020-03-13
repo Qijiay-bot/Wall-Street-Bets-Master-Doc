@@ -22,3 +22,15 @@ Raw case numbers: The source is directly from John Hopkins University, which is 
 
 U.S passed 1,000 Coronavirus Cases : https://www.politico.com/news/2020/03/10/coronavirus-cases-united-states-125233
 
+**3/13**
+
+US:
+Louisiana postpones presidential primary to June 20th. 
+
+Europe:
+Denmark and Poland closes borders to foreigners. Italy hits 1-day record with 250 new deaths
+
+Asia: 
+India reports 2nd death from corona.
+<link: https://www.aljazeera.com/news/2020/03/stocks-collapse-coronavirus-global-pandemic-live-200312235606108.html >
+
